@@ -14,7 +14,7 @@ que el niño a la sombra en la silla!
 
 Pero su madre no oiría
 los gritos de terror de su cría
-mientras el cuco desaparecía...
+mientras el cuco se escabullía...
 
 junto al pequeño Elías.
 
